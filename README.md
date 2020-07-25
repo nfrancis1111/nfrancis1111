@@ -1,5 +1,8 @@
-### Hi there 👋
+###👋 I'm Nyasha!
+😄 Pronouns: she/her
 
+Checkout my website: nyasha.tech
+Checkout my Twitter: @blkandnotmild
 <!--
 **nfrancis1111/nfrancis1111** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
